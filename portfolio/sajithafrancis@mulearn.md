@@ -1,4 +1,4 @@
-# [IEEE LAUNCHPAD Job Fair](https://launchpadkerala.org/)
+# [IEEE - LAUNCHPAD](https://launchpadkerala.org/)
 # Sajitha Francis
 
 ### About Me
