@@ -1,4 +1,3 @@
-# [IEEE - LAUNCHPAD](https://launchpadkerala.org/)
 # Sajitha Francis
 
 ### About Me
